@@ -1,4 +1,4 @@
 ## **Nam Kya Bataya?**
-### **-Bhupendra jogi **
+### **-Bhupendra jogi**
 
 
